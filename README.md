@@ -1,1 +1,0 @@
-# asupanvidey03
